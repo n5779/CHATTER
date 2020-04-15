@@ -6,8 +6,8 @@ I made it to make you laugh, and have something to explore endings in, to experi
 
 --
 Feel free to modify the code to make it better.
-Contact me if you have any ideas on add-on story-lines or anything to add to the game.
+Contact me if you have any ideas on add-on story-lines or anything to add to the game. --
 --
 
-*Email* crucifixrexion@gmail.com
-*Discord* DiscordDawg#6454
+*Email:* crucifixrexion@gmail.com
+*Discord:* DiscordDawg#6454
