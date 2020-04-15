@@ -10,4 +10,4 @@ Contact me if you have any ideas on add-on story-lines or anything to add to the
 --
 
 *Email* crucifixrexion@gmail.com
-*DIscord* DiscordDawg#6454
+*Discord* DiscordDawg#6454
